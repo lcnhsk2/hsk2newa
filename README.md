@@ -1,0 +1,2 @@
+# hsk2newa
+LCN HSK2 NEW KOSAKATA
